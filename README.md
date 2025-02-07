@@ -1,1 +1,1 @@
-https://github.com/genyus00/pending/
+https://genyus00.github.io/pending/
